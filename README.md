@@ -2,7 +2,7 @@
 - 👀 I’m interested in electronic music and blockchain
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... https://kasparnoe.com/
+- 📫 How to reach me ... https://kasparnoe.com/ https://advertikmedia.com/
 
 <!---
 kasparnoe/kasparnoe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kasparnoe
 - 👀 I’m interested in electronic music and blockchain
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning blockchain tech
+- 💞️ I’m looking to collaborate on organic house, post production, sonic branding , and digital marketing
 - 📫 How to reach me ... https://kasparnoe.com/ https://advertikmedia.com/
 
 <!---
